@@ -1,2 +1,0 @@
-# Billahbaig-
-baigpara 
